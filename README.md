@@ -1,0 +1,1 @@
+# AssignmentMidterm_APP_AI
